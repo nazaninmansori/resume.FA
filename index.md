@@ -38,7 +38,7 @@
  
 
  
-   -Gmail: nazaninmansor407@gmail.com
+   - Gmail: nazaninmansor407@gmail.com
 
    - کوئرا: <a href="https://quera.ir/profile/nazaninmansori">My Profile</a>
 
