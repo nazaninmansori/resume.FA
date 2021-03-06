@@ -1,4 +1,3 @@
-👽, [04.03.21 18:10]
 <img src="https://avatars.githubusercontent.com/u/80045623?s=400&u=05b5704b89547166476e5ae337a90ef464b508da&v=4"/>
 
  <h1> درباره ی من</h1>
